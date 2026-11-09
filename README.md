@@ -1,2 +1,2 @@
 # Projects
-for school
+Um pouco sobre mim
